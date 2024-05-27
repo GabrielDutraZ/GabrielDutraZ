@@ -1,4 +1,4 @@
-## Hi there 👋
+## Não é pecado lutar pela justiça, ao contrário, é uma boa ação. Pense, existem inimigos que não são convencidos com palavras. Você só tem que soltar. a fúria que está dentro do seu espírito.
 
 <!--
 **GabrielDutraZ/GabrielDutraZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
